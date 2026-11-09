@@ -1,0 +1,2 @@
+# pinzxjailbreakmove
+🚀 Deployed via Bot
